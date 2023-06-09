@@ -6,9 +6,6 @@
 
 Hi there 👋
 
-<!--
-**sid-siddhartha/sid-siddhartha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. ** --!>
-
 ![LeetCode Stats](https://leetcode.card.workers.dev/siddhartha_1247?theme=dark&font=source_code_pro&extension=null)
 
 
