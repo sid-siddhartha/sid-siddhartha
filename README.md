@@ -1,4 +1,5 @@
-![Hello!!! I'm Siddhartha](https://user-images.githubusercontent.com/96170086/190115923-79e9b95b-9737-4753-a98f-f9c981556b87.png)
+![Chebrolu Sai Siddhartha](https://github.com/sid-siddhartha/sid-siddhartha/assets/96170086/82593b73-feba-43c6-9d04-5be658070e7d)
+
 
 
 
