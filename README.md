@@ -1,11 +1,1 @@
-![Chebrolu Sai Siddhartha](https://github.com/sid-siddhartha/sid-siddhartha/assets/96170086/82593b73-feba-43c6-9d04-5be658070e7d)
-
-
-
-
-
-
-
-
-
-
+![Brown and Gray Simple Personal LinkedIn Banner](https://github.com/sid-siddhartha/sid-siddhartha/assets/96170086/f5b6342f-d61d-4140-b838-b173f66eaa76)
