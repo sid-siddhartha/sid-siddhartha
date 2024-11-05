@@ -1,4 +1,5 @@
-![Brown and Gray Simple Personal LinkedIn Banner](https://github.com/sid-siddhartha/sid-siddhartha/assets/96170086/f5b6342f-d61d-4140-b838-b173f66eaa76)
+![Chebrolu Sai Siddhartha](https://github.com/user-attachments/assets/4010e186-7da8-4481-b938-b6c895ecbfc8)
+
 
 
 ## 🌐 Socials:
